@@ -27,8 +27,6 @@ I'll follow random people, if i like ur pony sure
 Follow my Twitch! I do among us streams (sometimes)!
 
 Green FictionKin!
-
-https://www.pinterest.com/pin/1095852521862467240/
 <!--
 **i-make-pizza/i-make-pizza** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
