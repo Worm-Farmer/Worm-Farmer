@@ -12,6 +12,12 @@ Areas you will NEVER see me at: Bakery, Library
 
 I don't care what you think of my ponies. I love my ponies and their designs.
 
+<img width="370" height="320" alt="f0fd819a-fefd-4493-9b8b-e6bdf2f199ab" src="https://github.com/user-attachments/assets/1bc08d6a-7464-421a-9fb4-ad0cb2b5297a" />
+
+<img width="735" height="552" alt="701dec75-db28-4c1f-b1c5-b9c8ad106570" src="https://github.com/user-attachments/assets/fe4e566c-a029-47d3-9f87-d887f685f9e8" />
+
+<img width="370" height="320" alt="f0fd819a-fefd-4493-9b8b-e6bdf2f199ab" src="https://github.com/user-attachments/assets/1bc08d6a-7464-421a-9fb4-ad0cb2b5297a" />
+
 Please INTWC!! I don't like rude people.
 
 Please only int with English! If you're from other areas, i don't mind but please speak my language!
