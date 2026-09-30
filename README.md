@@ -1,3 +1,5 @@
+<img width="735" height="147" alt="8d33d2b9-3789-49fe-b923-ea9cb2653096" src="https://github.com/user-attachments/assets/e6f4bfd8-0508-42c9-a60b-7b3f177b2752" />
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317bm3nq4cejfc2c3cg3mfupipra&cover_image=false&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=100&color=18790D&width=435&lines='+Oh!+Forgive+me+lord!+';'+Oh!+I'm+a+good+girl!+';'+You+put+me+in+this+house..+';'+I+had+to+claw+right+out!+';'+Run%2C+rabbit%2C+run%2C+rabid!+';'+Run%2C+run+run+run+run..+';'+Gift+granted%2C+';'+You've+gone+rancid!+')](https://git.io/typing-svg)
 The ReadMe is back!!
@@ -27,6 +29,9 @@ I'll follow random people, if i like ur pony sure
 Follow my Twitch! I do among us streams (sometimes)!
 
 Green FictionKin!
+
+<img width="1920" height="1200" alt="Untitled8_20260929183835" src="https://github.com/user-attachments/assets/76e499c7-b20c-4ffb-bec6-718fbb705b1e" />
+
 <!--
 **i-make-pizza/i-make-pizza** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
