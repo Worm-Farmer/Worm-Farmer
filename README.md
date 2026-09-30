@@ -38,6 +38,9 @@ Green FictionKin!
 
 <img width="1920" height="1200" alt="Untitled8_20260929183835" src="https://github.com/user-attachments/assets/76e499c7-b20c-4ffb-bec6-718fbb705b1e" />
 
+<img width="603" height="450" alt="e96ffd5f-3420-4ba7-91de-8dc82722a42e" src="https://github.com/user-attachments/assets/74ea53fa-acf9-41a8-a961-7f787a9e3bf0" />
+
+
 <!--
 **i-make-pizza/i-make-pizza** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
