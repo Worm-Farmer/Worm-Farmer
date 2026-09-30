@@ -1,4 +1,6 @@
-<img width="533" height="147" alt="8d33d2b9-3789-49fe-b923-ea9cb2653096" src="https://github.com/user-attachments/assets/e6f4bfd8-0508-42c9-a60b-7b3f177b2752" />
+<img width="535" height="251" alt="0e3e1c1f-3d09-4a4a-86c8-f121fe117c2b" src="https://github.com/user-attachments/assets/3d61bb23-6f1e-416f-af72-f4ab00c280a0" />
+
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317bm3nq4cejfc2c3cg3mfupipra&cover_image=false&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=100&color=18790D&width=435&lines='+Oh!+Forgive+me+lord!+';'+Oh!+I'm+a+good+girl!+';'+You+put+me+in+this+house..+';'+I+had+to+claw+right+out!+';'+Run%2C+rabbit%2C+run%2C+rabid!+';'+Run%2C+run+run+run+run..+';'+Gift+granted%2C+';'+You've+gone+rancid!+')](https://git.io/typing-svg)
@@ -27,6 +29,12 @@ It's very very confusing if you just walk up to me and speak a different languag
 Be friends with me! I am cool with interactions unless hanging with friends, then W2I!!
 
 DNI if you hate worms!! >:(
+
+<img width="336" height="50" alt="6ef043fe-12f1-47f0-93af-67716879bb73" src="https://github.com/user-attachments/assets/7a9f42e2-f57b-47a0-a354-43a5610dca46" />
+
+<img width="336" height="50" alt="ffb51e9b-b7dc-4d37-ab6b-c6e80c4422eb" src="https://github.com/user-attachments/assets/f4ea85c8-0fdc-4242-ba49-89e4726d7c32" />
+
+
 
 yes ill sign ur atabook i love ata pls tell me if u have one meow
 
