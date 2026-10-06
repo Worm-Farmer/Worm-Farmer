@@ -16,7 +16,7 @@ wowie zowie! thanks!
 <img width="436" height="360" alt="image" src="https://github.com/user-attachments/assets/5d23b34a-b144-4eda-aca9-5ff868f81576" />
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317bm3nq4cejfc2c3cg3mfupipra&cover_image=false&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317bm3nq4cejfc2c3cg3mfupipra&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=light)](https://github.com/kittinan/spotify-github-profile)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=100&color=18790D&width=435&lines='+Oh!+Forgive+me+lord!+';'+Oh!+I'm+a+good+girl!+';'+You+put+me+in+this+house..+';'+I+had+to+claw+right+out!+';'+Run%2C+rabbit%2C+run%2C+rabid!+';'+Run%2C+run+run+run+run..+';'+Gift+granted%2C+';'+You've+gone+rancid!+')](https://git.io/typing-svg)
 The ReadMe is back!!
 
