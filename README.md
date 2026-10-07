@@ -20,7 +20,6 @@
 <img width="436" height="360" alt="image" src="https://github.com/user-attachments/assets/5d23b34a-b144-4eda-aca9-5ff868f81576" />
 <img width="436" height="260" alt="image" src="https://github.com/user-attachments/assets/d7d47b6a-b018-45a7-98d0-c37ccbb51fa9" />
 <img width="236" height="260" alt="image" src="https://github.com/user-attachments/assets/8d3eb021-5524-4c30-b3d3-4837d1a5dee9" />
-<img width="436" height="260" alt="image" src="https://github.com/user-attachments/assets/76a63f25-79dd-4960-aee3-856dff7cfc8c" />
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317bm3nq4cejfc2c3cg3mfupipra&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=light)](https://github.com/kittinan/spotify-github-profile)
