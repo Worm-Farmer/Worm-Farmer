@@ -12,7 +12,7 @@
 <img width="37" height="18" alt="image" src="https://github.com/user-attachments/assets/b83cbe6a-c8d2-46d9-b3e4-4bb1b88028e6" />
 <img width="57" height="18" alt="image" src="https://github.com/user-attachments/assets/5181342e-6ffa-4002-850a-a1a0ed94faca" />
 
-﹢﹒ throws worms in the air and it hits everyone within a 10 mile range
+﹢﹒ throws worms in the air and it hits everyone within a 10 mile range ( thank you for 100 follows. )
 
 
 ﹢﹒ wowie zowie! thanks!
