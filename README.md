@@ -8,7 +8,39 @@
 <img width="236" height="236" alt="image" src="https://github.com/user-attachments/assets/04313d73-1b7b-4d79-b323-6807691bd1c2" />
 
 
-﹢﹒ remaking everything
+﹢﹒ greenie beanie... so cute..
+
+﹢﹒ usually just relaxing at the club or flower shop
+
+﹢﹒ sometimes with my lovely friends or my evil killer party
+
+﹢﹒ dni proshippers, darkshippers
+
+﹢﹒ i love the pony game
+
+﹢﹒ dniuf/uid: forsaken, dandys world, green yume...... etc......
+
+﹢﹒ bad at making github profiles
+
+﹢﹒ ALWAYS free to int but please, as i mention many times in my profiles, dntuid!! <img width="236" height="236" alt="image" src="https://github.com/user-attachments/assets/b0c4a371-9217-41a3-8e17-4bdb362ca34e" />
+
+
+
+﹢﹒ friendly
+
+﹢﹒ i love everyone platonically
+﹢﹒ INT if:
+
+﹢﹒ among us show+game, wobbledogs, dead end paranormal park, hilda, among us logic, among us on guard fans
+
+﹢﹒ i enjoy roleplaying sometimes
+
+﹢﹒ nonbinary heheh
+﹢﹒ i unfortunately get mad.. very easily.. sob sob..
+
+﹢﹒ bmf plelelelelelase heheh.
+
+﹢﹒ if i block you i block you for a reason.
 
 <img width="436" height="314" alt="image" src="https://github.com/user-attachments/assets/e45a6059-17e6-4661-9383-fe92aea94de4" />
 
