@@ -42,6 +42,13 @@
 
 ﹢﹒ if i block you i block you for a reason.
 
+﹢﹒ hehehehee thank.
+
+<img width="274" height="296" alt="image" src="https://github.com/user-attachments/assets/3da6270b-4301-4f1a-803d-bf46fb78360f" />
+<img width="274" height="296" alt="image" src="https://github.com/user-attachments/assets/f0765cf9-604f-4853-a3b8-11c41d8255d7" />
+<img width="274" height="296" alt="image" src="https://github.com/user-attachments/assets/dab3e94e-a0f8-4650-a154-fe5be050b922" />
+
+
 <img width="436" height="314" alt="image" src="https://github.com/user-attachments/assets/e45a6059-17e6-4661-9383-fe92aea94de4" />
 
 <img width="874" height="805" alt="image" src="https://github.com/user-attachments/assets/486b3297-5fef-4d4e-9dc4-18f757c75ff0" />
