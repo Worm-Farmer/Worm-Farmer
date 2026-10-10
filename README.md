@@ -1,5 +1,7 @@
 <img width="2227" height="781" alt="image" src="https://github.com/user-attachments/assets/589f3f67-cc5f-4a31-b3f0-2ab4802ed5f2" />
 
+Do not fret but i MIGHT.. change my username and everything.. basing profile off diff character.. hmmm
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2500&pause=1000&color=1D9426&width=435&lines=look+me+in+my+perfect+face+%3AD;omg+u+wanna+taste+!!;kiss+me+till+my+lips+go+numb+%3C3;cmon+baby+lets+have+fun%2C%2C)](https://git.io/typing-svg)
 <img width="89" height="177" alt="image" src="https://github.com/user-attachments/assets/2865ba89-4c70-4d05-a8d5-1d49c975d437" />
 
