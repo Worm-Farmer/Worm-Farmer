@@ -33,6 +33,7 @@ readme looks best in light mode, dont use dark for it or it ugly since i struggl
 ﹢﹒ friendly
 
 ﹢﹒ i love everyone platonically
+
 ﹢﹒ INT if:
 
 ﹢﹒ among us show+game, wobbledogs, dead end paranormal park, hilda, among us logic, among us on guard fans
