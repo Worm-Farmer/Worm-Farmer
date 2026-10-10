@@ -40,6 +40,7 @@ readme looks best in light mode, dont use dark for it or it ugly since i struggl
 ﹢﹒ i enjoy roleplaying sometimes
 
 ﹢﹒ nonbinary heheh
+
 ﹢﹒ i unfortunately get mad.. very easily.. sob sob..
 
 ﹢﹒ bmf plelelelelelase heheh.
