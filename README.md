@@ -1,5 +1,7 @@
 <img width="2227" height="781" alt="image" src="https://github.com/user-attachments/assets/589f3f67-cc5f-4a31-b3f0-2ab4802ed5f2" />
 
+<img width="536" height="636" alt="image" src="https://github.com/user-attachments/assets/7b6bf921-f2f8-41cd-8269-55a1d0d7c1d6" />
+
 readme looks best in light mode, dont use dark for it or it ugly since i struggle to remove the background
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2500&pause=1000&color=1D9426&width=435&lines=look+me+in+my+perfect+face+%3AD;omg+u+wanna+taste+!!;kiss+me+till+my+lips+go+numb+%3C3;cmon+baby+lets+have+fun%2C%2C)](https://git.io/typing-svg)
