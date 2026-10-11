@@ -33,7 +33,7 @@ readme looks best in light mode, dont use dark for it or it ugly since i struggl
 
 ﹢﹒ INT if:
 
-﹢﹒ among us show+game, wobbledogs, dead end paranormal park, hilda, among us logic, among us on guard fans
+﹢﹒ among us show+game+rodamrix, wobbledogs, dead end paranormal park, hilda, among us logic, among us on guard fans
 
 ﹢﹒ i enjoy roleplaying sometimes
 
