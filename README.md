@@ -1,18 +1,15 @@
-<img width="2227" height="781" alt="image" src="https://github.com/user-attachments/assets/589f3f67-cc5f-4a31-b3f0-2ab4802ed5f2" />
+<img width="547" height="347" alt="image" src="https://github.com/user-attachments/assets/15a739d0-308f-4163-ae10-06b75f5a1e35" />
 
-<img width="536" height="636" alt="image" src="https://github.com/user-attachments/assets/7b6bf921-f2f8-41cd-8269-55a1d0d7c1d6" />
+<img width="436" height="436" alt="image" src="https://github.com/user-attachments/assets/2fe1cdb8-887f-450f-98f6-710a87cc7425" />
+
 
 readme looks best in light mode, dont use dark for it or it ugly since i struggle to remove the background
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2500&pause=1000&color=1D9426&width=435&lines=look+me+in+my+perfect+face+%3AD;omg+u+wanna+taste+!!;kiss+me+till+my+lips+go+numb+%3C3;cmon+baby+lets+have+fun%2C%2C)](https://git.io/typing-svg)
-<img width="89" height="177" alt="image" src="https://github.com/user-attachments/assets/2865ba89-4c70-4d05-a8d5-1d49c975d437" />
 
-<img width="236" height="236" alt="image" src="https://github.com/user-attachments/assets/e1881285-d93b-4d30-a96a-f70988c2cb41" />
-<img width="236" height="236" alt="image" src="https://github.com/user-attachments/assets/858887cb-4fce-4b7d-aee7-d90c5fad963d" />
-<img width="236" height="236" alt="image" src="https://github.com/user-attachments/assets/04313d73-1b7b-4d79-b323-6807691bd1c2" />
+<img width="395" height="355" alt="image" src="https://github.com/user-attachments/assets/e57be696-4c70-4e60-a668-409f2af13965" />
 
 
-﹢﹒ greenie beanie... so cute..
+﹢﹒ greenie beanie AND pink... so cute..
 
 ﹢﹒ usually just relaxing at the club or flower shop
 
@@ -26,9 +23,7 @@ readme looks best in light mode, dont use dark for it or it ugly since i struggl
 
 ﹢﹒ bad at making github profiles
 
-﹢﹒ ALWAYS free to int but please, as i mention many times in my profiles, dntuid!! <img width="236" height="236" alt="image" src="https://github.com/user-attachments/assets/b0c4a371-9217-41a3-8e17-4bdb362ca34e" />
-
-
+﹢﹒ ALWAYS free to int but please, as i mention many times in my profiles, dntuid!! 
 
 ﹢﹒ friendly
 
@@ -55,6 +50,7 @@ readme looks best in light mode, dont use dark for it or it ugly since i struggl
 <img width="274" height="296" alt="image" src="https://github.com/user-attachments/assets/dab3e94e-a0f8-4650-a154-fe5be050b922" />
 
 
-<img width="436" height="314" alt="image" src="https://github.com/user-attachments/assets/e45a6059-17e6-4661-9383-fe92aea94de4" />
+<img width="520" height="520" alt="image" src="https://github.com/user-attachments/assets/b8c5e439-6df8-42ae-b35a-bb0357575bb0" />
 
-<img width="874" height="805" alt="image" src="https://github.com/user-attachments/assets/486b3297-5fef-4d4e-9dc4-18f757c75ff0" />
+
+<img width="936" height="536" alt="image" src="https://github.com/user-attachments/assets/f6eac85f-c212-4629-bb66-e34d98f08993" />
