@@ -56,3 +56,7 @@ readme looks best in light mode, dont use dark for it or it ugly since i struggl
 
 
 <img width="936" height="536" alt="image" src="https://github.com/user-attachments/assets/f6eac85f-c212-4629-bb66-e34d98f08993" />
+
+<img width="320" height="320" alt="image" src="https://github.com/user-attachments/assets/ce6e3354-5042-4c2c-9e45-71fc5964586b" />
+<img width="315" height="315" alt="image" src="https://github.com/user-attachments/assets/8dfb26d4-92fc-46bc-bf0d-bdbbad3bf5db" />
+<img width="335" height="335" alt="image" src="https://github.com/user-attachments/assets/9660ea32-96ee-4aec-9707-3bf7679a1163" />
