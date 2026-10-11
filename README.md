@@ -1,5 +1,7 @@
 <img width="547" height="347" alt="image" src="https://github.com/user-attachments/assets/15a739d0-308f-4163-ae10-06b75f5a1e35" />
 
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=F78FCF&width=435&lines=Strangers+online+was+the+best-;-Decision+i+ever+made!;Reality+is+lemons..;And+the+internet's+my+LEMONADE!)](https://git.io/typing-svg)
+
 <img width="436" height="436" alt="image" src="https://github.com/user-attachments/assets/2fe1cdb8-887f-450f-98f6-710a87cc7425" />
 
 
